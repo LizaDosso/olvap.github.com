@@ -55,6 +55,6 @@ sus compañeros horrorizados, algunos se estaban enterando lo sucedido y otros
 lo habían bloqueado por completo. Todo esto fue demasiado y no tuvo más opción
 que derrumbarse en el piso y llorar desconsoladamente.
 
-Nelson, tomó un sorbito de su baso y lo dejó sobre la mesa, buscó su campera y
+Nelson, tomó un sorbito de su vaso y lo dejó sobre la mesa, buscó su campera y
 se fue. Lo último que recuerda de esa reunión son un montón de gritos a sus
 espaldas.
